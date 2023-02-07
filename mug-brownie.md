@@ -2,6 +2,11 @@ I love this recipe, because it's so simple to make.
 
 Often times, I will skip the microwave stage, and just eat the brownie mix. There no egg in it, so it's not even a salmonella risk!
 
+History of the Brownie:
+=============
+The author discovered this brownie  a long long time ago; long before the dinosaurs became extinct (-he's a vampire you see, and has lived a very long time, hence being able to perfect this recipe over the many millenia he has lived!!). He loved it sooo much, he stopped eating people and only ate brownies..!
+
+
 What you need
 =============
 
